@@ -1,2 +1,3 @@
 One day, a crocodile came out of the river.  He swam up to the tree and told the monkey that he had travelled a long distance
- and was in search of food as he was very hungry. 
+ and was in search of food as he was very hungry. The kind monkey offered him a few rose apples. The crocodile thanked him and asked him if he could visit the monkey again.
+ the crocodile telss al this story to his wife and then wife tells him to invite for dinner she wanted to eat monkey's heart.
